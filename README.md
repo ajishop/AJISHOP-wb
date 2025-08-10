@@ -1,0 +1,2 @@
+# AJISHOP-wb
+VPS MURAH
